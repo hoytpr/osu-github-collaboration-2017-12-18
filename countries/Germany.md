@@ -1,14 +1,14 @@
 ##Germany
-## population
+## population: 80 Million
 
 
-## capital
+## capital: Berlin
 
  
-## official language
+## official language: German
 
 
-## interesting trivia
+## interesting trivia: Home of Mercedes
 
 
 
