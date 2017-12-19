@@ -1,14 +1,14 @@
 ##Italy
-## population
+## population 61 million  
 
 
-## capital
+## capital Rome
 
  
-## official language
+## official language Italian
 
 
-## interesting trivia
+## interesting trivia  called the "Boot" "Lo Stivale"
 
 
 
