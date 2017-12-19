@@ -9,7 +9,7 @@ Quito
 Spanish
 
 ## interesting trivia
-Equator line cross this coutry
+Equator line cross this country
 
 
 
